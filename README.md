@@ -1,2 +1,0 @@
-# aisyahputri
-portfolio
